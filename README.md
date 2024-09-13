@@ -1,0 +1,6 @@
+- 👋 Oi, eu sou Luiz Henrique  
+- 👀 Estou interessado em Ciência da Computação  
+- 🌱 Atualmente, estou aprendendo  Analise e desenvolvimento de sistemas
+- 💞️ Estou procurando colaborar com pessoas empreendedoras 
+- 📫 Como me encontrar instagram:@llu1iz  
+- 😄 Pronomes: Ele/Dele
